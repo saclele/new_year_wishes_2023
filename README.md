@@ -1,1 +1,1 @@
-# new_year_wishes_2023
+# personalized_wishes_2023
